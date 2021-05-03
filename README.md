@@ -1,0 +1,1 @@
+I Am Samarth and I Am going to tell the recipe of a "VANILA CAKE". A vanilla cake is a cake made with vanilla. It is often covered in icing. It is often eaten at weddings and in big parties
